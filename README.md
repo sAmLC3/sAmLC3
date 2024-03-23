@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Samantha/Sammy/Sam
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning C# and html
+- 💞️ I’m looking to collaborate on my own proyect
+- 📫 How to reach me Discord @safira_nt
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I always want new challenges
